@@ -6,6 +6,8 @@
 
 i usually just hang around in pt with my closefriends since thats where im most comfortable. im kinda awkward around new people.. thats why i dont int first and it tooks forever for me to actually feel comfortable with someone. 
 
+pls ask for friend rq bcs i disabled it.
+
 i dont really into dirty jokes if we just met or barely know each other (stranger). i dont befriend anyone under 16 either. pls dni if youre under that age we're probably not a good match as friends. c+h is okay though
 
 mostly playing on safe idn servers. my indonesian isnt that good, and i still dont understand some words(i might ignore u) i prefer us to use eng to communicate /nf
