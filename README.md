@@ -11,9 +11,6 @@ pls ask for friend rq bcs i disabled it
 i dont really into dirty jokes if we just met or barely know each other (stranger). i dont befriend anyone under 16 either. pls dni if youre under that age we're probably not a good match as friends. c+h is okay though
 
 mostly playing on safe idn servers. my indonesian isnt that good, and i still dont understand some words(i might ignore u) i prefer us to use eng to communicate /nf
-
-![](https://64.media.tumblr.com/4ea2e751e73201cab6e2dee27e069d7b/efa59677884e5c34-33/s250x400/590490696b0895c33f0e2355c1acf6fad4f05e15.gifv)
-
 </div>
 
 <!--
