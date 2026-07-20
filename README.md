@@ -6,7 +6,7 @@
 
 i usually just hang around in pt with my closefriends since thats where im most comfortable. im kinda awkward around new people.. thats why i dont int first and it tooks forever for me to actually feel comfortable with someone
 
-pls ask for friend rq bcs i disabled it ![](https://64.media.tumblr.com/1909ebac92c6953e898a67dc8ad40ff7/94c5ed116fed9f41-7f/s75x75_c1/1cfd8a4fa774230dfece5b9ddc803d51531c8929.pnj) 
+pls ask for friend rq bcs i disabled it
 
 i dont really into dirty jokes if we just met or barely know each other (stranger). i dont befriend anyone under 16 either. pls dni if youre under that age we're probably not a good match as friends. c+h is okay though
 
